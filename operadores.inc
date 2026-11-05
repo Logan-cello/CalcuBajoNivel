@@ -1,0 +1,1 @@
+;aqui ira la logica todabia no inge xd
